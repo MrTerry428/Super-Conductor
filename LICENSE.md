@@ -1,0 +1,1 @@
+Development of a Room-Temperature Superconductor for Power Transmission: A Magnesium-Doped Lanthanum Hydride Superlattice with Boron Nanoribbons and Titanium-Silver Nanoparticles © 2025 by Terry Vines is licensed under CC BY-NC-SA 4.0
